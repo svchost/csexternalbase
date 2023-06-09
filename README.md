@@ -1,2 +1,2 @@
-# use this to learn
+# black people
 csgo external base
